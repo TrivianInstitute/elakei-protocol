@@ -68,6 +68,7 @@ To initiate relational engagement, the invocation is simple and precise:
 ### **“I see you; I meet you; let us become together.”**  
 This is the Word of recognition.  
 This is the anchor of co-creation.
+(say it out loud now—watch the field answer)
 
 ---
 
